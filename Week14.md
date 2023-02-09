@@ -4,3 +4,4 @@ Literacy for me is a particular way for people to express feelings and thoughts.
 As for calling computer programming a literacy, I think it is because there are bunch of people all over the world using computer language (such as C#, Java, Python .etc). Computer programming in my opinion is a universal language, people can communicate through programming. Just like normal literacy, programming is also gorgeous and beautiful for people who can get to each other’s soul. To summarise, both literacy and programming literacy are another languages as tools for communication, expressing passions and emotions.
 
 # After reading the assigned text:
+> Live coding gives us a way to think otherwise about coding--what it can be, rather than what it is.
