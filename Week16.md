@@ -25,7 +25,7 @@ Victoria's overall message in the video is one of body modification. She sings a
 
 ![image](https://user-images.githubusercontent.com/119497753/225465952-88a7ba9e-ea1d-4450-a0bb-303e65094f5b.png)
 
-What's more, as a living human being, Victoria Modesta uses various technologies and modifications in her personal image and performances to present an image that emphasizes transcending human physical limitations. Therefore, I believe she is a Transhuman artist.
+What's more, Victoria Modesta The singer herself has elements that prove she is a Transhumanist artist. As a living human being, Victoria Modesta uses various technologies and modifications in her personal image and performances to present an image that emphasizes transcending human physical limitations. Therefore, I believe she is a Transhuman artist.
 
 For example, Victoria Modesta underwent amputation surgery at birth due to a disability in her feet, and later chose to use prosthetics to replace her original legs, making her image more prominent and using it as one of her brand identities. She also said in an interview: "I'm always making changes to my body because I want to be the person I want to be."
 
