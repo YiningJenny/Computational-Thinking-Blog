@@ -1,4 +1,4 @@
-# I consider Victoria Modesta too be a Transhuman artist.
+# I consider Victoria Modesta to be a Transhuman artist.
 
 Firstly, her music video "Prototype" features several elements of transhumanism, the belief in using technology to enhance human abilities and experience. Evidence as below:
 
