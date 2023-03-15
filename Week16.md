@@ -29,7 +29,5 @@ What's more, Victoria Modesta The singer herself has elements that prove she is 
 
 For example, Victoria Modesta underwent amputation surgery at birth due to a disability in her feet, and later chose to use prosthetics to replace her original legs, making her image more prominent and using it as one of her brand identities. She also said in an interview: "I'm always making changes to my body because I want to be the person I want to be."
 
-In addition, Victoria Modesta often uses various high-tech devices and props, such as prosthetics, luminous costumes, and body attachments in her music and performances to create a futuristic image, emphasizing human reliance on technology and body modification. For example, in her music video "Prototype," she dances in a futuristic world wearing luminous costumes and prosthetics, emphasizing the fusion of technology and human body.
-
 ##### Figure
 Viktoria Modesta - Prototype (2014) Directed by Saam Farahmand [Music Video]. 4creative. Available at: https://youtu.be/jA8inmHhx8c
