@@ -9,3 +9,9 @@
 ## 7. Does this piece inspire you? If so, how?
 ## 8. What can you take away from this piece of art? How has studying this piece (potentially) changed your creative practice?
 ## 9. Give context about the Prize and include information from the interviews with the artist that can be found on the website.
+
+
+
+![27d023917bd128f781508768a9344d9](https://user-images.githubusercontent.com/119497753/225425576-800cccfc-8898-4344-ba73-ef528afddc4e.jpg)
+![1fa0da7a7db768c879cbe2c0f43c781](https://user-images.githubusercontent.com/119497753/225425596-e7b9169b-8e63-432e-b8f8-c378fa148fee.jpg)
+![cd344d762110fb1b47b2b4c1e9adddd](https://user-images.githubusercontent.com/119497753/225425615-88de29db-0c73-4319-b250-e5bbd15a84e2.jpg)
