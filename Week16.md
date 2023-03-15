@@ -1,6 +1,6 @@
 # I consider Victoria Modesta too be a Transhuman artist.
 
-### Firstly, her music video "Prototype" features several elements of transhumanism, the belief in using technology to enhance human abilities and experience. Evidence as below:
+Firstly, her music video "Prototype" features several elements of transhumanism, the belief in using technology to enhance human abilities and experience. Evidence as below:
 
 #### 1. Prosthetic leg
 The most obvious element of transhumanism in the video is Victoria's prosthetic leg. It's not just a functional replacement for a lost limb; it's a striking fashion statement that transforms Victoria's body into a work of art. The prosthetic leg is adorned with crystals, and it's designed to be both beautiful and functional.
@@ -30,3 +30,6 @@ What's more, as a living human being, Victoria Modesta uses various technologies
 For example, Victoria Modesta underwent amputation surgery at birth due to a disability in her feet, and later chose to use prosthetics to replace her original legs, making her image more prominent and using it as one of her brand identities. She also said in an interview: "I'm always making changes to my body because I want to be the person I want to be."
 
 In addition, Victoria Modesta often uses various high-tech devices and props, such as prosthetics, luminous costumes, and body attachments in her music and performances to create a futuristic image, emphasizing human reliance on technology and body modification. For example, in her music video "Prototype," she dances in a futuristic world wearing luminous costumes and prosthetics, emphasizing the fusion of technology and human body.
+
+##### Figure
+Viktoria Modesta - Prototype (2014) Directed by Saam Farahmand [Music Video]. 4creative. Available at: https://youtu.be/jA8inmHhx8c
