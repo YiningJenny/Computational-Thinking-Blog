@@ -8,11 +8,4 @@ It's also worth noting that while the chair's design may not conform to contempo
 
 In short, while some may view the "Up" chair as outdated or lacking in certain practical considerations, it remains a significant piece of design that exemplifies the power of creativity and expression in shaping cultural discourse.
 
-Furthermore, the use of non-traditional materials in the "Up" chair's production was a bold move that challenged the status quo of furniture design. Pesce's use of polyurethane foam allowed him to experiment with form and create a chair that defied the conventions of traditional furniture design. The chair's unique shape, combined with its bright, eye-catching colors, ensured that it would stand out and remain memorable to anyone who encountered it.
-
-Another noteworthy feature of the "Up" chair is its versatility. While its form may not lend itself to a traditional sitting experience, the chair's ability to be positioned in various ways allows for a range of sitting options. The chair's soft foam material provides a comfortable, cocoon-like experience that encourages relaxation and introspection.
-
-In conclusion, Pesce's "Up" chair is a prime example of how design can be used to convey powerful messages and challenge societal norms. Its unique form, use of non-traditional materials, and versatility make it a standout piece of furniture that has endured the test of time. While there are valid criticisms of the chair's sustainability, practicality, comfort, durability, and cost, it remains a thought-provoking piece of design that continues to inspire and captivate audiences.
-
-
-In conclusion, while Gaetano Pesce's "Up" chair may be a design icon, it is not without its flaws. Its environmental impact, unconventional design, lack of practicality, comfort issues, durability concerns, and high price tag are all valid criticisms. Nonetheless, the chair remains a bold and daring piece of design that has stood the test of time and continues to inspire designers to push the boundaries of conventionality.
+![0db44cb31f6d2224d7862fff4859d8b](https://user-images.githubusercontent.com/119497753/225422678-7ec44768-6353-4e72-957d-fe209d46ad31.jpg)
