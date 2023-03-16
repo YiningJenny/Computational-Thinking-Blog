@@ -7,4 +7,4 @@ Please only read this three ones which I put most effort into:
 
 [Week14_codingLiteracy](https://github.com/YiningJenny/Computational-Thinking-Blog/blob/main/Week14.md "Week 14_Coding Literacy and Coding Otherwise")
 
-[Week16_TransAndPosthumanism](https://github.com/YiningJenny/Computational-Thinking-Blog/blob/main/Week16.md)
+[Week15_gallery/MuseumVisit](https://github.com/YiningJenny/Computational-Thinking-Blog/blob/main/Week15.md)
