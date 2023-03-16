@@ -6,3 +6,5 @@ Please only read this three ones which I put most effort into:
 [Week12_embraceDifference](https://github.com/YiningJenny/Computational-Thinking-Blog/blob/main/Week12_embraceDifference.md "Week 12_embraceDifference")
 
 [Week14_codingLiteracy](https://github.com/YiningJenny/Computational-Thinking-Blog/blob/main/Week14.md "Week 14_Coding Literacy and Coding Otherwise")
+
+[Week16_TransAndPosthumanism](https://github.com/YiningJenny/Computational-Thinking-Blog/blob/main/Week16.md)
