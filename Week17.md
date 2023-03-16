@@ -9,3 +9,6 @@ What I find particularly inspiring about this project is the way that it focuses
 Furthermore, the Low Tech Magazine's approach to sustainability is grounded in a deep understanding of the history of technology. They explore the use of pre-industrial techniques and technologies, such as water wheels and windmills, and demonstrate how these can be used in modern contexts. This approach challenges the dominant narrative of technological progress, which often assumes that newer is always better.
 
 In conclusion, the Low Tech Magazine is an inspiring example of how small-scale technology can be used to address pressing environmental issues. By exploring low-tech solutions to energy and sustainability issues, the project emphasizes the importance of community involvement and participation, while also challenging dominant narratives of technological progress. As the project itself emphasizes, "sometimes, the best way to be futuristic is to look backwards."
+
+Quatation from:
+Low tech magazine by Marie Otsuka and Roel Roscam Abbing: https://test.roelof.info/projects/solar.lowtechmagazine.com/
